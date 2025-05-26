@@ -1,8 +1,15 @@
+---
+aliases:
+  - Lennart
+---
+
 Lennart has a perfectly normal-looking career jacket for a Canadian general officer: squadron command, liaison with the [[USAF]], base command, [[NATO]] posting. His expertise is logistics; routing flights and supplies from base to field and vice versa. The only anomaly in his file is his sudden transfer to [[Sarajevo]]: by rights, he should have finished out his NATO tour at [[NATO HQ Naples]]. His transfer five months ago might have been intended to stymie his investigation, or he might have requested it himself to get access to records of the [[Bosnia]] and [[Kosovo]] missions.
 
 From [[Quebec]]
 
 Lives in a Townhome in [[Sarajevo]]
+
+Has a girlfriend who flies in, doesnt even cheat on her because he is so vanilla
 
 Annoyed to be here in Serbia, most likely 
 
@@ -15,3 +22,4 @@ works in his office alone for the most part.
 Stops somewhere for dinner, or eats the maids cooking
 8pm Does a little extra work or reading
 11pm Goes to sleep/lights-out
+

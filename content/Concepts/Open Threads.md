@@ -1,0 +1,9 @@
+- [ ] [[Vienna]]
+	- [ ] What is happening in [[Vienna]]?
+	- [ ] What is relevant about [[The Opera, Der Vampyr]]?
+	- [ ] How is [[Arkady Schlevenko]] related to this conspirace?
+- [ ] Whoever [[The Paymaster Anton Depopovic|Anton]] reports to is in [[Belgrade]], from the [[Naša Stvar, the Serbian mafia|Naša Stvar]], what do they know?
+- [ ] What does [[The Target Brigadier-General Lennart|Lennart]] know?
+- [ ] Why did the crows save us?
+- [ ] Who is the [[Esmerala|Demon Child]]?
+- [ ] 

@@ -1,0 +1,4 @@
+- There are probably more field operatives per sqft than anywhere else in the world
+- Not the most heavily digitially surveilled, but more spooks walking than anywhere else.
+- Any overt operations here attract a ton of attention.
+- Three [[Bratja]] have Vienna as their neutral territory. So anything that happens in Vienna, could trigger a massive civil war between the gangs.
